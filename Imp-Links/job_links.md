@@ -1,0 +1,21 @@
+# Job Links
+
+-   <https://www.nielsen.com/careers/careers/#section-4>
+-   [https://flextronics.wd1.myworkdayjobs.com/en-US/Careers/details/Analyst---Procurement_WD198278?source=Flex_Career_Site](https://flextronics.wd1.myworkdayjobs.com/en-US/Careers/details/Analyst---Procurement_WD198278?source=Flex_Career_Site)
+-   <https://www.okta.com/company/careers/>
+-   <https://app.ripplematch.com/v2/public/job/1c21e989/details?from_page=tracking_link&tl=aa34db13>
+-   <https://apply.workable.com/weekday-1/j/ECD99E634C/>
+-   <https://apply.workable.com/weekday-1/?lng=en>
+-   <https://apply.workable.com/weekday-1/j/5BA2F6001E/>
+-   <https://www.se.com/ww/en/about-us/careers/job-details/applications-developer/81831/>
+-   <https://www.se.com/ww/en/about-us/careers/job-details/network-specialist-engineer/88580/>
+-   <https://www.se.com/ww/en/about-us/careers/job-details/business-intelligence-developer/81807/>
+-   [https://www.se.com/ww/en/about-us/careers/job-details/junior-project-manager---data-centres/80184/](https://www.se.com/ww/en/about-us/careers/job-details/junior-project-manager---data-centres/80184/)
+-   <https://apply.workable.com/weekday-1/?lng=en>
+-   [https://www.databricks.com/company/careers/engineering/engineering-manager---ui-platform-7731209002](https://www.databricks.com/company/careers/engineering/engineering-manager---ui-platform-7731209002)
+-   <https://jobs.hilton.com/latam/en/search-results>
+-   <https://fssai.gov.in/jobs@fssai.php>
+-   <https://jobs.hilton.com/latam/en/job/EUR015JI/Interim-Senior-Business-Analyst-18-months>
+-   <https://www.nielsen.com/careers/careers/>
+-   <https://www.pfcindia.com/>
+-   <https://careers.gevernova.com/global/en/c/supply-chain-sourcing-jobs?from=30&s=1>
